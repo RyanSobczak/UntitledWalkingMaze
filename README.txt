@@ -1,0 +1,1 @@
+stating a walking simulator, horror game that takes place in a maze
